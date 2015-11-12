@@ -6,5 +6,5 @@ Se busca dar impulso a la cultura en todos sus ambitos debido a la falta de rela
 
 Marco Antonio Aurelio Estrada Robles,  
 Elisa Oliva Del Razo,   
-Luis Enrique Rodriguez De La Rosa
+Luis Enrique Rodriguez De La Rosa,
 Brayan Yohualli Devora Garcia 
